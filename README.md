@@ -12,8 +12,6 @@
 
 - 📫 How to reach me **divanshiagg1768@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/divan/Downloads/my%20resume1%20(2).pdf](file:///C:/Users/divan/Downloads/my%20resume1%20(2).pdf)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
